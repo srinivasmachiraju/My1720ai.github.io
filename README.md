@@ -1,2 +1,2 @@
-# My1720ai.github.io
+# srinivasmachiraju.github.io
 First publiction of "Machiraju Srinivas" company
