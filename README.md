@@ -1,2 +1,2 @@
-# srinivasmachiraju.github.io
+# srinivasmachiraju
 First publiction of "Machiraju Srinivas" company
